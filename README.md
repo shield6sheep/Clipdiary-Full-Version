@@ -1,0 +1,1 @@
+# Clipdiary-Full-Version
